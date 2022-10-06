@@ -7,5 +7,5 @@
 
 # Namaste in Crypto
 
-> this event was only for girls to connect on a deeper level, first mentally with themselves through yoga so then they are able to connect and communicate with the rest of girls. During brunch, we got to know each other and debate on trends, community and regulatory issues that is Brazil and Latam dealing with. 
+> this event was only for girls to connect on a deeper level, first we practiced some yoga on a beautiful rooftop with sun rising and during our brunch, we finally got to know each other little bit more and discuss trends, community and regulatory issues that is Brazil and Latam dealing with. 
 
